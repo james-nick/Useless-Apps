@@ -1,2 +1,3 @@
 # Useless-Apps
-Hmmm. no uses excet why not.
+Hmmm. no uses except why not.
+Just try it.
